@@ -1,4 +1,4 @@
 - 👋 Olá, sou @ lucasazevedo01
 - 👀 Tenho interesse em desenvolver novos projetos e cooperar com a comunidade por meio de resultados positivos.
-- 🌱 Atualmente sou aluno do 8º semestre de engenharia da computação e nunca me canso de aprender novas habilidades.
+- 🌱 Atualmente sou aluno do 9º semestre de engenharia da computação e nunca me canso de aprender novas habilidades.
 - 📫 Como entrar em contato comigo +55 (27) 99258-8218
